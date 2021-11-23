@@ -78,6 +78,7 @@ Neuilly-sur-Seine (92)
 
 ## Clinique Vétérinaire Bardet, ##  
 *Découverte de la vie en entreprise et de la gestion des relations avec les clients* 
+
 Stage d’observation en classe de 3e au cours duquel j’ai pu assister à plusieurs opérations.
 
 ## CENTRES D’INTÉRÊT ##
